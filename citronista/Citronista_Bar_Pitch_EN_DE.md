@@ -11,7 +11,7 @@
 ### 🇩🇪 Deutsch
 
 **Betreff:** Der Zitrussaft, der im Cocktail stabil bleibt 🍋
-*(Alternative: Schluss mit Pressen bei [Bar name])*
+*(Alternativen: Schluss mit Pressen bei [Bar name] · Vom Bar Convent Berlin: Zitrus für Batches & Taps)*
 
 > Hallo [Vorname],
 >
@@ -24,6 +24,8 @@
 > 🍋 **100 % natürlich, ohne Zuckerzusatz** – mit den Ölen & Aromen der Schale
 > 🍋 **Spart Geld** – kein Pressen, kein Abfall, weniger Prep
 >
+> Wir sind eine junge, wachsende Marke, beliefern bereits Bars in **Bulgarien und Ungarn** und waren dieses Jahr auf dem **Bar Convent Berlin** – mit fantastischem Feedback.
+>
 > Bag-in-Box per Kurier in 5–6 Werktagen, **ab 8 Boxen versandkostenfrei**.
 >
 > Ich würde euch gern mehr erzählen – meldet euch einfach per Mail oder unter [Telefon/WhatsApp].
@@ -34,7 +36,7 @@
 ### 🇬🇧 English
 
 **Subject:** The citrus juice that stays stable in your cocktails 🍋
-*(Alternative: No more squeezing at [Bar name])*
+*(Alternatives: No more squeezing at [Bar name] · Fresh from Bar Convent Berlin: citrus for batches & taps)*
 
 > Hi [First name],
 >
@@ -46,6 +48,8 @@
 > 🍋 **Made for everything**: sours, batching, RTDs and tap systems
 > 🍋 **100% natural, no added sugar**: the peel's natural oils and aromas are kept in
 > 🍋 **Saves money**: no squeezing, no waste, less prep
+>
+> We're a young, growing brand, already supplying venues in **Bulgaria and Hungary**, and we were at **Bar Convent Berlin** this year, where the feedback was fantastic.
 >
 > Bag-in-box by courier in 5–6 working days, **free delivery from 8 boxes**.
 >
@@ -66,7 +70,7 @@
 >
 > Glückwunsch zu [Award] – verdient! Ich weiß, ihr presst frisch. Aber für **Batches, Tap-Cocktails, RTDs und Events** gibt es jetzt etwas Neues:
 >
-> **Citronista** – Zitronen- und Limettensaft, **alkoholstabil**, 100 % natürlich, ohne Zuckerzusatz, mit den Ölen & Aromen der Schale. Einzigartig auf dem Markt.
+> **Citronista** – Zitronen- und Limettensaft, **alkoholstabil**, 100 % natürlich, ohne Zuckerzusatz, mit den Ölen & Aromen der Schale. Einzigartig auf dem Markt – bereits im Einsatz in Bars in Bulgarien und Ungarn, und auf dem Bar Convent Berlin 2026 mit fantastischem Feedback vorgestellt.
 >
 > Ich würde euch gern mehr erzählen – meldet euch einfach per Mail oder unter [Telefon/WhatsApp].
 >
@@ -81,7 +85,7 @@
 >
 > Congratulations on [award], well deserved! I know you squeeze fresh, but there's now something new for **batches, tap cocktails, RTDs and events**:
 >
-> **Citronista** lemon and lime juice: **alcohol-stable**, 100% natural, no added sugar, with the peel's oils and aromas kept in. There's nothing else like it on the market.
+> **Citronista** lemon and lime juice: **alcohol-stable**, 100% natural, no added sugar, with the peel's oils and aromas kept in. There's nothing else like it on the market. It's already used in bars in Bulgaria and Hungary, and we showed it at Bar Convent Berlin 2026 to fantastic feedback.
 >
 > I'd love to tell you more. Get in touch by email or on [phone/WhatsApp].
 >
