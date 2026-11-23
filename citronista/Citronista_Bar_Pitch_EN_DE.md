@@ -15,18 +15,19 @@
 
 > Hallo [Vorname],
 >
-> euer [Drink] hat mich neugierig gemacht – deshalb melde ich mich.
+> ich bin [Name] von Citronista. Euer [Drink] hat mich neugierig gemacht – genau für solche Drinks ist unser Saft gemacht.
 >
 > **Citronista** ist Zitronen- und Limettensaft, wie es ihn so noch nicht gibt:
 >
 > 🍋 **Alkoholstabil** – bleibt frisch und stabil im Drink, auch im Batch
 > 🍋 **Für alles gemacht** – Sours, Batching, RTDs und Tap-Systeme
-> 🍋 **100 % natürlich, ohne Zuckerzusatz** – mit den Ölen & Aromen der Schale
-> 🍋 **Spart Geld** – kein Pressen, kein Abfall, weniger Prep
+> 🍋 **100 % natürlich, ohne Zuckerzusatz** – die natürlichen Öle & Aromen der Schale bleiben erhalten. Keine Kompromisse beim Geschmack.
+> 🍋 **Spart Geld** – kein Pressen, kein Fruchteinkauf, kein Abfall, weniger Prep
+> 🍋 **Gleichbleibend** – dieselbe Qualität in jedem Drink, egal wer hinter der Bar steht
 >
 > Wir sind eine junge, wachsende Marke, beliefern bereits Bars in **Bulgarien und Ungarn** und waren dieses Jahr auf dem **Bar Convent Berlin** – mit fantastischem Feedback.
 >
-> Bag-in-Box per Kurier in 5–6 Werktagen, **ab 8 Boxen versandkostenfrei**.
+> **So funktioniert's:** Bag-in-Box per Kurier direkt zu euch, in **5–6 Werktagen**. **Ab 8 Boxen versandkostenfrei** – damit habt ihr einen bequemen Vorrat und müsst nicht ständig nachbestellen. Kleinere Bestellungen sind natürlich auch möglich (zzgl. Versandkosten).
 >
 > Ich würde euch gern mehr erzählen – meldet euch einfach per Mail oder unter [Telefon/WhatsApp].
 >
@@ -40,18 +41,19 @@
 
 > Hi [First name],
 >
-> Your [drink] caught my eye, so I wanted to reach out.
+> I'm [Name] from Citronista. Your [drink] caught my eye, and it's exactly the kind of drink our juice is made for.
 >
 > **Citronista** is lemon and lime juice unlike anything else on the market:
 >
 > 🍋 **Alcohol-stable**: stays fresh and stable in the drink, even in batches
 > 🍋 **Made for everything**: sours, batching, RTDs and tap systems
-> 🍋 **100% natural, no added sugar**: the peel's natural oils and aromas are kept in
-> 🍋 **Saves money**: no squeezing, no waste, less prep
+> 🍋 **100% natural, no added sugar**: the peel's natural oils and aromas are kept in. No compromise on flavour.
+> 🍋 **Saves money**: no squeezing, no fruit buying, no waste, less prep
+> 🍋 **Consistent**: the same quality in every drink, whoever is behind the bar
 >
 > We're a young, growing brand, already supplying venues in **Bulgaria and Hungary**, and we were at **Bar Convent Berlin** this year, where the feedback was fantastic.
 >
-> Bag-in-box by courier in 5–6 working days, **free delivery from 8 boxes**.
+> **How it works:** bag-in-box packs by courier, straight to your door, in **5–6 working days**. **Delivery is free from 8 boxes**, which gives you a comfortable stock so you're not constantly re-ordering. Smaller orders are welcome too, with a delivery fee.
 >
 > I'd love to tell you more. Get in touch by email or on [phone/WhatsApp].
 >
