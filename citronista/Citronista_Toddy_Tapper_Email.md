@@ -1,6 +1,6 @@
 # Citronista: Toddy Tapper (Cologne) personal email
 
-**Send to:** the address on the bar's own website (bar@toddytapper.de was listed on merian.de). Cologne bar, so the German version is the better one to send.
+**Send to:** the contact address on the bar's website (see your email list). Cologne bar, so the German version is the better one to send.
 **Angle:** BCB follow-up + their house-made ingredients and cocktail catering.
 
 ---
@@ -52,7 +52,7 @@
 >
 > **So funktioniert's:** 3-Liter-Bag-in-Box per Kurier in **5–6 Werktagen**. **Bis 31. Dezember 2026 ab 8 Boxen versandkostenfrei** – ein guter Vorrat für Bar und Catering. Kleinere Bestellungen sind natürlich auch möglich (zzgl. Versandkosten).
 >
-> Am besten testet ihr Citronista einfach in ein paar euren Rezepten im normalen Service. Ich erzähle euch gern mehr – meldet euch einfach per Mail oder unter [Telefon/WhatsApp].
+> Am besten testet ihr Citronista einfach in ein paar eurer Rezepte im normalen Service. Ich erzähle euch gern mehr – meldet euch einfach per Mail oder unter [Telefon/WhatsApp].
 >
 > Cheers,
 > [Name] · Citronista · www.citronista.com
