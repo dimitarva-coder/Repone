@@ -27,7 +27,7 @@
 >
 > Wir sind eine junge, wachsende Marke, beliefern bereits Bars in **Bulgarien und Ungarn** und waren dieses Jahr auf dem **Bar Convent Berlin** – mit fantastischem Feedback.
 >
-> **So funktioniert's:** Bag-in-Box per Kurier direkt zu euch, in **5–6 Werktagen**. **Ab 8 Boxen versandkostenfrei** – damit habt ihr einen bequemen Vorrat und müsst nicht ständig nachbestellen. Kleinere Bestellungen sind natürlich auch möglich (zzgl. Versandkosten).
+> **So funktioniert's:** 3-Liter-Bag-in-Box per Kurier direkt zu euch, in **5–6 Werktagen**. **Bis 31. Dezember 2026 ab 8 Boxen versandkostenfrei** – damit habt ihr einen bequemen Vorrat und müsst nicht ständig nachbestellen. Kleinere Bestellungen sind natürlich auch möglich (zzgl. Versandkosten).
 >
 > Ich würde euch gern mehr erzählen – meldet euch einfach per Mail oder unter [Telefon/WhatsApp].
 >
@@ -53,7 +53,7 @@
 >
 > We're a young, growing brand, already supplying venues in **Bulgaria and Hungary**, and we were at **Bar Convent Berlin** this year, where the feedback was fantastic.
 >
-> **How it works:** bag-in-box packs by courier, straight to your door, in **5–6 working days**. **Delivery is free from 8 boxes**, which gives you a comfortable stock so you're not constantly re-ordering. Smaller orders are welcome too, with a delivery fee.
+> **How it works:** 3L bag-in-box packs by courier, straight to your door, in **5–6 working days**. **Delivery is free from 8 boxes until 31 December 2026**, which gives you a comfortable stock so you're not constantly re-ordering. Smaller orders are welcome too, with a delivery fee.
 >
 > I'd love to tell you more. Get in touch by email or on [phone/WhatsApp].
 >
@@ -124,16 +124,16 @@
 
 **DE:**
 > Danke [Vorname], schön von dir zu hören! Kurz die Eckdaten:
-> – Citronista Zitronensaft & Limettensaft, Bag-in-Box à [X Liter], [€ … pro Box]
-> – **Ab 8 Boxen versandkostenfrei**, kleinere Bestellungen zzgl. [€ …] Versand
+> – Citronista Zitronensaft & Limettensaft, Bag-in-Box à 3 Liter, [€ … pro Box]
+> – **Bis 31. Dezember 2026 ab 8 Boxen versandkostenfrei**, kleinere Bestellungen zzgl. [€ …] Versand
 > – Lieferzeit 5–6 Werktage per Kurier
 >
 > Wie viel Zitrus verbraucht ihr ungefähr pro Woche? Dann sage ich dir, wie lange 8 Boxen reichen – und wann ein Telefonat passt.
 
 **EN:**
 > Thanks [First name], great to hear from you! The key details:
-> – Citronista lemon & lime juice, bag-in-box, [X litres] each, [€ … per box]
-> – **Free delivery from 8 boxes**; smaller orders plus [€ …] delivery
+> – Citronista lemon & lime juice, bag-in-box, 3 litres each, [€ … per box]
+> – **Free delivery from 8 boxes until 31 December 2026**; smaller orders plus [€ …] delivery
 > – Delivery in 5–6 working days by courier
 >
 > Roughly how much citrus do you use a week? I'll tell you how long 8 boxes would last, and when would suit you for a quick call?

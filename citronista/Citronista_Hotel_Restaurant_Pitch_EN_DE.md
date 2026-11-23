@@ -31,7 +31,7 @@
 >
 > We're a young, growing brand, already supplying venues in **Bulgaria and Hungary**, and we were at **Bar Convent Berlin** this year, where the feedback was fantastic.
 >
-> **How it works:** bag-in-box packs by courier, straight to your door, in **5–6 working days**. **Delivery is free from 8 boxes**, which gives you a comfortable stock for all outlets. Smaller orders are welcome too, with a delivery fee.
+> **How it works:** 3L bag-in-box packs by courier, straight to your door, in **5–6 working days**. **Delivery is free from 8 boxes until 31 December 2026**, which gives you a comfortable stock for all outlets. Smaller orders are welcome too, with a delivery fee.
 >
 > I'd love to tell you more. Get in touch by email or on [phone/WhatsApp].
 >
@@ -58,7 +58,7 @@
 >
 > Wir sind eine junge, wachsende Marke, beliefern bereits Betriebe in **Bulgarien und Ungarn** und waren dieses Jahr auf dem **Bar Convent Berlin** – mit fantastischem Feedback.
 >
-> **So funktioniert's:** Bag-in-Box per Kurier direkt zu Ihnen, in **5–6 Werktagen**. **Ab 8 Boxen versandkostenfrei** – ein bequemer Vorrat für alle Outlets. Kleinere Bestellungen sind ebenfalls möglich (zzgl. Versandkosten).
+> **So funktioniert's:** 3-Liter-Bag-in-Box per Kurier direkt zu Ihnen, in **5–6 Werktagen**. **Bis 31. Dezember 2026 ab 8 Boxen versandkostenfrei** – ein bequemer Vorrat für alle Outlets. Kleinere Bestellungen sind ebenfalls möglich (zzgl. Versandkosten).
 >
 > Ich erzähle Ihnen gern mehr – melden Sie sich einfach per E-Mail oder unter [Telefon/WhatsApp].
 >
@@ -92,7 +92,7 @@
 >
 > We're a young, growing brand, already supplying venues in **Bulgaria and Hungary**, and we were at **Bar Convent Berlin** this year, where the feedback was fantastic.
 >
-> **How it works:** bag-in-box packs by courier, straight to your door (or to each restaurant), in **5–6 working days**. **Delivery is free from 8 boxes**, which gives you a comfortable stock. Smaller orders are welcome too, with a delivery fee.
+> **How it works:** 3L bag-in-box packs by courier, straight to your door (or to each restaurant), in **5–6 working days**. **Delivery is free from 8 boxes until 31 December 2026**, which gives you a comfortable stock. Smaller orders are welcome too, with a delivery fee.
 >
 > I'd love to tell you more. Get in touch by email or on [phone/WhatsApp].
 >
@@ -118,7 +118,7 @@
 >
 > Wir sind eine junge, wachsende Marke, beliefern bereits Betriebe in **Bulgarien und Ungarn** und waren dieses Jahr auf dem **Bar Convent Berlin** – mit fantastischem Feedback.
 >
-> **So funktioniert's:** Bag-in-Box per Kurier direkt zu Ihnen (oder an jede Filiale), in **5–6 Werktagen**. **Ab 8 Boxen versandkostenfrei** – ein bequemer Vorrat. Kleinere Bestellungen sind ebenfalls möglich (zzgl. Versandkosten).
+> **So funktioniert's:** 3-Liter-Bag-in-Box per Kurier direkt zu Ihnen (oder an jede Filiale), in **5–6 Werktagen**. **Bis 31. Dezember 2026 ab 8 Boxen versandkostenfrei** – ein bequemer Vorrat. Kleinere Bestellungen sind ebenfalls möglich (zzgl. Versandkosten).
 >
 > Ich erzähle Ihnen gern mehr – melden Sie sich einfach per E-Mail oder unter [Telefon/WhatsApp].
 >
